@@ -13,4 +13,4 @@ Anggota Kelompok:
 - Saifulloh Fadli
 - I Gusti Ngurah Adi Permana
 - Romi Julianto
-- Muhammad Kahrirrurshofa
+- Muhammad Kharirrushofa
